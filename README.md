@@ -8,5 +8,5 @@ I do  freelancing services to help organizations and individuals to imply best p
 4.Eperience in Ms office, Excel, PPT <br> 
 
 ## Find me around the web 🌎:<img align="left" width="150" height="150" src="https://i.imgur.com/yYrCMpM.gif"></a>
-- Sharing updates on <a href="https://www.linkedin.com/in/nibedita-pathak-8b46b81a7/">LinkedIn</a> 💼
+- Sharing updates on : <a href="https://www.linkedin.com/in/nibedita-pathak-8b46b81a7/">LinkedIn</a> 💼
 - Contact Me On : <b> nibeditapathak.legalinfo@gmail.com </b>
